@@ -9,8 +9,7 @@
 ## 📫 Contato
 
 - 📧 Email: [lucasdinizfrota@gmail.com](mailto:lucasdinizfrota@gmail.com)
-- 📱 Telefone: (88) 9 9960-0044
-- 🖥️ [GitHub](https://github.com/lucasDinizF)
+- 💼 [LinkedIn](https://www.linkedin.com/in/lucas-diniz-04b15626b/) 
 
 ---
 
